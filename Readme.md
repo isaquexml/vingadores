@@ -1,8 +1,8 @@
 # Github
 
+Novo dia, novo tempo.
 
-Arquivos novos. Flamengo Campeão Mundial!
-Palmeiras não tem mundial!
+Grandes coisas estão por vir.
 
 
 Gostou deste dia?

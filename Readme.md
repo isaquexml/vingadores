@@ -5,5 +5,7 @@ Novo dia, novo tempo.
 Grandes coisas estão por vir.
 
 
-Gostou deste dia?
+Novidades por parcela.
+Não acontece todas as coisas ao mesmo tempo, pois tudo tem seu tempo.
+
 # vingadores
